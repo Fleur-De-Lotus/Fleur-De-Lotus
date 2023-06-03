@@ -6,4 +6,4 @@
 - I play clarinet and guitar.<p>
 - I do parkour and freerunning 🤸.<p>
 <p>
-- Well, that's me.
+Well, that's me.
